@@ -1,2 +1,1 @@
 Aksana Rautskaya
-11
